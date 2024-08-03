@@ -1,1 +1,0 @@
-# rpghks07.github.io
